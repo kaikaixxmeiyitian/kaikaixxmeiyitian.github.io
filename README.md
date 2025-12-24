@@ -1,1 +1,1 @@
-# kaikaixxmeiyitian.github.io
+Jiege Village, purely a personal hobby.
